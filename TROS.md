@@ -163,3 +163,39 @@
 # 0:27:48 [**Tech**] Speeders, except with fucking phsyical fucking bitchass actual fucking treads
 
 # 0:27:57 [**Tech**] EJECTOR BIKE EJECTOR BIKE
+
+# 0:28:06 [**Dialogue**] "Oh?! They fly now?"
+
+# 0:28:07 [**Dialogue**] ["They fly now?"](https://youtu.be/KmO44bYbX4A)
+
+# 0:28:08 [**Dialogue**] ["They fly now?"](https://youtu.be/KmO44bYbX4A)
+
+# 0:28:50 [**Dialogue**] "Excellent job sir!"
+
+# 0:28:56 [**Dialogue**] "Terrible job sir!"
+
+# 0:29:26 [**Tech**] The stupid tread-speeders' treads are what makes them able to be killed by Finn
+
+# 0:29:43 [**Dialogue**] "I've seen that ship before", huh, convenient, ain't it?
+
+# 0:30:14 [**Tech**] Comically large explosion
+
+# 0:30:20 [**Physics**] Quicksand only starts sucking them in after they killed the stormtrooper
+
+# 0:30:25 [**Plot**] They never tell us what Finn was gonna tell Rey
+
+# 0:30:52 [**Dialogue] "Do you have to say it like that?"
+
+# 0:30:52 [**Dialogue**] "Be Optimistic"
+
+# 0:31:00 [**Dialogue**] Wow. Such optimism. Many happiness.
+
+# 0:31:00 [**Visual**] Leia's face
+
+# 0:31:15 [**Dialogue**] Ok, fine, he _is_ comic relief, but you don't have to take it this goddamn literally.
+
+# 0:31:30 [**Dialogue**] Don't tell me they paid someone to write this dogshit
+
+# 0:32:50 [**Dialogue**] "I don't like bones"
+
+# 0:32:58[**Plot**] Ah yes the dagger is just here plot armor go brrr
