@@ -157,3 +157,9 @@
 # 0:25:18 [**Tech**] Stormtrooper killed by a single arrow
 
 # 0:25:43 [**Character**] It's Lando _fucking_ Calrissian
+
+# 0:26:47 [**Dialogue / fan-service**] "I have a bad feeling about this"
+
+# 0:27:48 [**Tech**] Speeders, except with fucking phsyical fucking bitchass actual fucking treads
+
+# 0:27:57 [**Tech**] EJECTOR BIKE EJECTOR BIKE
